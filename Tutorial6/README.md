@@ -1,1 +1,1 @@
-<img width="447" height="245" alt="snapassignment6" src="https://github.com/user-attachments/assets/36fb7bb0-9191-493f-ab4b-a049363f71a7" />
+<img width="992" height="596" alt="image" src="https://github.com/user-attachments/assets/ea14cf27-2163-4e17-a0f2-64294609ca34" />
